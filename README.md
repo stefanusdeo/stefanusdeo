@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **stefanusdeo07@gmail.com**
 
-- 🌐 My Website **www.stefanusdeo.site.com**
+- 🌐 My Website **www.stefanusdeo.site**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
